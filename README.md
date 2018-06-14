@@ -10,4 +10,4 @@ With this app, the user will be able to generate particular (Barcode) contains e
 
 Tel:+19096187845
 
-Email:lk93565081@sina.com
+Email:lk93565081@gmail.com
